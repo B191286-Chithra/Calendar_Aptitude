@@ -1,1 +1,1 @@
-Consistently apply my expertise to [practically implement various ptitude topics upon completion.
+Consistently apply my expertise to practically implement various aptitude topics upon completion.
